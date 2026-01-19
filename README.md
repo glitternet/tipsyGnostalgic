@@ -1,4 +1,4 @@
-![](https://github.com/glitternet/tipsyGnostalgic/blob/main/IMG_5079.gif)
+![](IMG_5079.gif)
 
  <3 roxy ✦﹒ any/all prns⠀𝄢 
 
