@@ -2,7 +2,7 @@
 
  <3 roxy ✦﹒ any/all prns⠀𝄢 
 
-kin , doubles pls dni ><"
+kin , doubles pls dni ><" love yall but i got major jealousy issues :< 
 
 ![IMG_4484](https://github.com/user-attachments/assets/63f00619-e214-4866-931d-1b4c23eaf0ff)
 ![IMG_6665](https://github.com/user-attachments/assets/19e9fded-7306-46eb-a5ce-b14298dd454f)
